@@ -16,5 +16,3 @@ Le agradezco a todos mis compañeros de clase, pero sobretodo a Isaac ya que no 
 # Autor
 
 Cynthia Del Pino Sánchez Hernández.
-
-
